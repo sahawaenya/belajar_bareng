@@ -1,6 +1,4 @@
 # belajar_bareng
 
 
-asdkhaojksdf
-aksdhlkasd
-kahlsdlashd
+sabiq sabiq sabiq
